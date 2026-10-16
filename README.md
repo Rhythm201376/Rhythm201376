@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Rhythm201376
-- 👀 I’m interested in Gaming
-- 🌱 I’m currently learning Science
-- 💞️ I’m looking to collaborate on FNF Projects
-- 📫 How to reach me (YouTube)
-- 😄 Pronouns: He/Him
+- 👀 I’m interested in Stepmania charting and music prod work
+- 🌱 I’m currently learning Music Theory
+- 💞️ I’m looking to collaborate on whatever
+- 📫 How to reach me (https://dj-r41n.bsky.social)
+- 😄 Pronouns: He/They/Ae/Fae
 - ⚡ Fun fact: there is none
 
 <!---
